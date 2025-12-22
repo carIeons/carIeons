@@ -1,7 +1,19 @@
-<p align="center">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{}୨ৎ}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=　𓆩♱𓆪　"> ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{}୨ৎ}$$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-</p>
+‎ ‎ ‎ ‎ 
+‎ 
+‎ 
+<div align="center">
+  
+ 
+ 
 
-<p align="center">
-  <img src="https://64.media.tumblr.com/f1ccd27341482a8217091af0cc7e625b/91a08c862e9668d0-fa/s1280x1920/51b6c7129134f42977e86381a5b095a841b9ad05.gif" | width=400 style="font-size:"/>
-</p>
+ 
+ ![Example GIF](https://64.media.tumblr.com/2d39bcf09d12a79c34595efea7237cbe/2d1bac4d75cc183e-e8/s2048x3072/9aad043bfa6e98b24c9dd2fa94bf74f53b7e539c.pnj)
+‎  
+[rentry](https://rentry.co/carleons)      ‎ ‎ ‎ ‎ ‎      ‎ [atabook](https://carleons.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ [matching](https://rentry.co/residnteevil) 
+</div> 
+‎ 
+‎ 
+‎ 
+‎ 
+‎ 
+‎ 
